@@ -8,4 +8,4 @@ Full Stack Software Developer | Board & Card Game Enthusiast
 <br>
 I like to write my code with purpose and actively make efforts to keep it organized and easy to understand. <br>
 I'm always looking for cool new tools to try and implement into my projects. <br>
-🎲 Love chatting about tabletop games, disc golf, and skiing! ⛷<br>
+🎲 Love chatting about tabletop games, disc golf, and new places to get icecream! 🍦<br>
